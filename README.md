@@ -1,0 +1,1 @@
+Hmm blum jadi ya 
